@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-CXGA020823MTLHNLA7
+CXGA020823MTLHNLA7
